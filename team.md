@@ -9,8 +9,8 @@ kklumert@gmail.com
 seydaybar@gmail.com
 
 Emre BAŞAR
-171180008
-seydaybar@gmail.com
+181180013
+emrebasar345@gmail.com
 
 
 ## Video Link
